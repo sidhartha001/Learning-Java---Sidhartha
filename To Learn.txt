@@ -1,0 +1,5 @@
+kjhio
+
+Linked List Functions:
+	https://www.javatpoint.com/java-linkedlist
+	https://www.geeksforgeeks.org/linked-list-in-java/	

@@ -32,3 +32,7 @@ Every family is different. Determine what may work for you and your family.
 Establish a clear system and guidelines. There is no one right way to 
 give your kids an allowance. When it comes to allowances, 
 it's best to know what your child would typically be spending the money on. 
+
+           
+_________________________________________=======================================           
+           I am a Gadha
